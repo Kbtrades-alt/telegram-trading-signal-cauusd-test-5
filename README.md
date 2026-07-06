@@ -1,1 +1,0 @@
-# telegram-trading-signal-cauusd-test-5
